@@ -1,5 +1,6 @@
 ## Hey there💅!!
-btech student | future tech girlie 💻  
+i'm Khushi🍁
+btech student | future tech girlie 🎀💻  
 coding, breaking, fixing, repeating 🔁  
 learning java, dsa & building cool stuff  
 soft heart, sharp logic 🧠💗

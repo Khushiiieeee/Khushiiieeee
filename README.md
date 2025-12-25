@@ -1,4 +1,8 @@
-## Hi there 👋
+## Hey there💅!!
+btech student | future tech girlie 💻  
+coding, breaking, fixing, repeating 🔁  
+learning java, dsa & building cool stuff  
+soft heart, sharp logic 🧠💗
 
 <!--
 **Khushiiieeee/Khushiiieeee** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
